@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Егор (@egor1319i)
+- 👀 I’m interested in self-development, self-realization, getting new acquaintances and knowledge)
+- 🌱 I’m currently learning QA engineer!
+- 💞️ I’m looking to collaborate on with interesting, developed, versatile people. Development should be both moral and spiritual)
+- 📫 How to reach me? Telegram @egor1319i
+- 😄 Pronouns: ...
+- ⚡ Fun fact: turtle can breathe booty
